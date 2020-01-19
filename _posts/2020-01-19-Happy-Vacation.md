@@ -1,6 +1,6 @@
 ---
 layout: post
-title:
+title: Happy Vacation
 ---
 
 Today I looked at myself in the mirror, it felt as if I see myself for the first time. In them was a dream travelled all over my body and settled in my eyes to announce its existence.
