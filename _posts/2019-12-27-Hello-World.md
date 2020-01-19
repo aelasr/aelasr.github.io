@@ -3,4 +3,4 @@ layout: post
 title: Hello World!
 ---
 
-Random blogs.
+Random posts.
