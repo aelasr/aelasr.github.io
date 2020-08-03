@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The Most Beautiful is Yet to Come
+title: The Most Beautiful Is Yet To Come
 ---
 
 We didn't go to the most beautiful seas yet!  
