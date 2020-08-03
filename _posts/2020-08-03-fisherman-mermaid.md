@@ -16,6 +16,5 @@ The mermade ashonishingly followed the light, and they met each other on the top
 Her heart shines like a sun, a magic island appeared in the far horizon.
 
 Towards the island the mermaid and fisherman sailed together, leaving behind them shiny sparkling diamonds floating on the surface of the water, made of their memories.
-
-
-I'm sorry.
+<br/><br/>
+I'm sorry, my mermaid.
