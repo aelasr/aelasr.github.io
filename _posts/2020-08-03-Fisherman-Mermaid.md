@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The Fisherman and the Mermaid
+title: The Fisherman And The Mermaid
 ---
 
 A fisherman was sailing his wooden boat through a sea of demons and darkeness.
