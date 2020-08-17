@@ -6,6 +6,8 @@ title: Happy Birthday
 Happy Birthday!
 
 I keep talking about how much your birthday means to me but you will never know how much that day and every day since I met you means to me!  
+
+
 I love you today more than yesterday and I'll love you more tomorrow. I know that being apart from you is suicide to me and living without you is impossible. And I know that I will never stop loving you not even for one day and I will never get bored of waiting for you.  
 I will stay as I am, every part of me is attached to you. Resting in a beautiful book that I will give you as a gift one day.  
 I will stay as I am, a plant that that refuses to follow all of the rules of the field, waiting to lie in your head to grow up and flourish!  
@@ -26,3 +28,7 @@ You will always be mine, my life, my soul and my only dream!
 
 
 I will write your name on trees and flowers and walls and our kids hands to let the whole universe knows that you are my first and last love.
+
+And my oath in my heart can't be even put into words.
+
+I just love you with my heart and soul and every sense of me!
