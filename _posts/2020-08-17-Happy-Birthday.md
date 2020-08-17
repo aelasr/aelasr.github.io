@@ -27,7 +27,7 @@ You will always be everything, the most important and the most precious.
 You will always be mine, my life, my soul and my only dream!  
 
 
-I will write your name on trees and flowers and walls and our kids hands to let the whole universe knows that you are my first and last love.
+I will write your name on trees and flowers and walls and our kids hands to let the whole universe know that you are my first and last love.
 
 And my oath in my heart can't be even put into words.
 
