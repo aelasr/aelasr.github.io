@@ -15,7 +15,7 @@ And you will always stay my little baby, whom I feel so happy when she gifts me 
 
 
 I will always get my oxygen from your breathing to live, and strength from you to walk through and my courage to face the impossible.  
-I will always be a cloud showering only you with rain of adoration then falling down from the sky to hang over you and protect you from sun scars!  
+I will always be a cloud showering only you with rain of adoration then falling down from the sky to hang over you and protect you!  
 I will always be crazy in love with you, never accepting anything but having you mine and being proud to be yours.  
 
 
