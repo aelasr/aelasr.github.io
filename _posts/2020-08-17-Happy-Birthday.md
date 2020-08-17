@@ -13,7 +13,7 @@ I will stay as I am, every part of me is attached to you. Resting in a beautiful
 I will stay as I am, a plant that that refuses to follow all of the rules of the field, waiting to lie in your head to grow up and flourish!  
 
 
-And you will always stay my little baby, whom I feel so happy when she gifts me a smile, and whom I fly from happiness whenever she hugs my arm with her little ones. Whom I will always pull to my heart to her how much I love her and how much I miss her even when she is there.  
+And you will always stay my little baby, whom I feel so happy when she gifts me a smile, and whom I fly from happiness whenever she hugs my arm with her little ones. Whom I will always pull to my heart to show her how much I love her and how much I miss her even when she is there.  
 
 
 I will always get my oxygen from your breathing to live, and strength from you to walk through and my courage to face the impossible.  
