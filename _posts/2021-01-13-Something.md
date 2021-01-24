@@ -1,5 +1,5 @@
 ---
-layout: pageAuto
+layout: post
 title: Something
 ---
 
